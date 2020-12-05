@@ -1,0 +1,1 @@
+# SeoPlus-copy-right
